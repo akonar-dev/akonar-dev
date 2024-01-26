@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **akonar.dev@gmail.com**
 
-- ⚡ Fun fact **Sometimes I hate to code**
+- ⚡ Fun fact **Sometimes I hate to code😁**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
